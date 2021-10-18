@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BondallazCorentin
+- 👋 Hi, I’m Bondallaz Corentin
 - 👀 I’m interested.
 - 🌱 I’m currently learning.
 - 💞️ I’m looking to collaborate.
